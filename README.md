@@ -1,7 +1,9 @@
-<img src="https://i.pinimg.com/736x/97/b5/1d/97b51d5993c6dd499e1d196d8147b97b.jpg" alt="Story pin image"/>!
+![image](https://github.com/user-attachments/assets/45281965-9a4a-401b-9b35-dbc9951236fa)
 
 
-Art by helado_jpg 
+
+Art by @kunocha_ on twt/x
+
 
 
 
@@ -15,7 +17,8 @@ draw on straw or atabook
 
 
 
-![image](https://github.com/user-attachments/assets/f8ae066e-a8e7-4579-9a35-7732870d180d)
+![image](https://github.com/user-attachments/assets/d7858d54-4419-4b6d-bcb0-f1133b8467b4)
+
 
 
 
