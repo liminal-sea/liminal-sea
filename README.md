@@ -2,8 +2,9 @@
 
 ༉‧₊˚. sign atabook!! [click here !! (˶ᵔ ᵕ ᵔ˶)](https://mephistopheles.atabook.org)
 
-
-
+˚𖥔 Mephistopheles /Serpent /cyber / meat / Ross ˚𖥔  ── .✦ she / he / they ⊹ ࣪   ꒰ᐢ. .ᐢ꒱ rougefort + Longan + ananas + fexiao fan >ᴗ<
+                            i dont talk alot but id love to be friends!! ^^ c+h is alowed idm
+<a href="https://imgbb.com/"><img src="https://i.ibb.co/3YVFP8sr/IMG-3760.png" alt="IMG-3760" border="0"></a>
 
 
 
