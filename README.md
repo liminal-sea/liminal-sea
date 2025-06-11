@@ -12,9 +12,6 @@ i dont talk alot but id love to be friends!!
                        
 ^^ c+h is allowed idm
 
-
-<img src="https://i.ibb.co/3YVFP8sr/IMG-3760.png" width="300"><img src="https://i.ibb.co/3YVFP8sr/IMG-3760.png" width="300">
-
 <img src="https://i.postimg.cc/GtZqcsWs/IMG-3757.png" width="200"> <img src="https://i.postimg.cc/FsBL84jw/IMG-3758.jpg" width="200"><img src="https://i.postimg.cc/T2WssdMW/IMG-3756.png" width="200">
 
 1# trans masc feixiao beliver ☆⌒(ゝ。∂) ... 
