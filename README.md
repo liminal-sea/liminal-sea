@@ -14,9 +14,9 @@ i dont talk alot but id love to be friends!!
 
 <img src="https://i.postimg.cc/GtZqcsWs/IMG-3757.png" width="200"> <img src="https://i.postimg.cc/FsBL84jw/IMG-3758.jpg" width="200"><img src="https://i.postimg.cc/T2WssdMW/IMG-3756.png" width="200">
 
-1# trans masc feixiao beliver ☆⌒(ゝ。∂) ... 
+1# genderfluid feixiao beliver ☆⌒(ゝ。∂) ... 
 
-follow for a blt >_<
+follow for a blue berry tart :33 !!
 
 
 
