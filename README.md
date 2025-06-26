@@ -1,4 +1,4 @@
-[<a href="https://imgbb.com/"><img src="https://i.ibb.co/krp01m9/IMG-3752.jpg" alt="IMG-3752" border="0"></a>](https://www.pinterest.com/pin/504332858290259114/)
+<img src="https://i.imghippo.com/files/UDx1077vVg.png" width="400">
 
 ༉‧₊˚. sign atabook!! [click here !! (˶ᵔ ᵕ ᵔ˶)](https://mephistopheles.atabook.org)
 
@@ -6,13 +6,13 @@
 
 ── .✦ she / he / they ⊹ ࣪  
                                         
- ꒰ᐢ. .ᐢ꒱ rougefort + Longan + ananas + fexiao fan >ᴗ<
+ ꒰ᐢ. .ᐢ꒱ dante + sinclair + netzach + hod + honglu + kromer fan >ᴗ<
 
 i dont talk alot but id love to be friends!! 
                        
 ^^ c+h is allowed idm
 
-<img src="https://i.postimg.cc/GtZqcsWs/IMG-3757.png" width="200"> <img src="https://i.postimg.cc/FsBL84jw/IMG-3758.jpg" width="200"><img src="https://i.postimg.cc/T2WssdMW/IMG-3756.png" width="200">
+<img src="https://i.imghippo.com/files/aKx2562Q.jpeg" width="200"> <img src="https://i.imghippo.com/files/SeWw5372E.jpeg" width="200"> <img src="https://i.imghippo.com/files/ABK6820Li.jpeg" width="200"> <img src="https://i.imghippo.com/files/AeY6853FsU.jpeg" width="200">
 
 
 
