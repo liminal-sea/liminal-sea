@@ -1,6 +1,8 @@
 <img src="https://i.imghippo.com/files/UDx1077vVg.png" width="400">
 
-༉‧₊˚. sign atabook!! [click here !! (˶ᵔ ᵕ ᵔ˶)](https://mephistopheles.atabook.org)
+sign my wall!!  [click here !! ](https://walloftext.co/mephistopheles)
+
+༉‧₊˚. sign atabook!! [click here !! ](https://mephistopheles.atabook.org)
 
 ˚𖥔 Mephistopheles /Serpent /cyber / meat / Ross ˚𖥔 
 
