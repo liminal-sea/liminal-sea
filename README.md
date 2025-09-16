@@ -4,7 +4,7 @@
 
 
 
-﹒𓎢౨ৎ﹒𓎠 mephistopheles / meat   ˙
+𓎢౨ৎ﹒𓎠 mephistopheles / meat   ˙
 ̟  𓏶 pansexual ◞◟ genderfluid 𓏴   19   
 “I'm tasting your blood, see”
 
