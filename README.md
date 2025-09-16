@@ -1,4 +1,4 @@
-<img src=https://i.imghippo.com/files/whiD3394zKg.png width="200">
+<img src=https://i.imghippo.com/files/whiD3394zKg.png width="300">
 check out my straw page!! https://gothic-devil.straw.page
 
 ﹒𓎢౨ৎ﹒𓎠 mephistopheles / meat   ˙
