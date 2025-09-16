@@ -2,7 +2,7 @@
  (art by : transmascmedkit on pinterest)
 
 
-check out my straw page!! https://gothic-devil.straw.page
+
 
 ﹒𓎢౨ৎ﹒𓎠 mephistopheles / meat   ˙
 ̟  𓏶 pansexual ◞◟ genderfluid 𓏴   19   
