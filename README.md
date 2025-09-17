@@ -7,7 +7,7 @@
 𓏶 pansexual ◞◟ genderfluid 𓏴   19   
 “I'm tasting your blood, see”
 
-i dont talk alot but id love to be friends!! 
+i dont talk alot and im very shy but id love to be friends!! 
                        
 ^^ c+h is allowed idm
 
