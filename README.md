@@ -1,7 +1,5 @@
-<img src=https://i.imghippo.com/files/icE4630is.png width="400">
+<img src=https://i.imghippo.com/files/OrFG8895Rl.png width="400">
 
-
-byi : ii rlly like skittles so pls dont be weird about them around mee
 
 𓎢౨ৎ﹒𓎠 mephistopheles / meat   ˙
 𓏶 pansexual ◞◟ genderfluid 𓏴   19   
