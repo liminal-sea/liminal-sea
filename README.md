@@ -1,5 +1,8 @@
 <img src=https://i.imghippo.com/files/TqN2974oI.png width="200">
 
+![](https://komarev.com/ghpvc/?username=liminal-sea)
+
+
 check out my strawpage!!!1
 
 
