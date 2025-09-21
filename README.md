@@ -1,4 +1,4 @@
-<img src=https://i.imghippo.com/files/TqN2974oI.png width="400">
+<img src=https://i.imghippo.com/files/TqN2974oI.png width="200">
 
 check out my strawpage!!!1
 
