@@ -1,4 +1,4 @@
-<img src=https://i.postimg.cc/gjF7qNTP/IMG-9869.jpg width="200">
+<img src=https://i.postimg.cc/MTCcqtbz/Queen-Dizzy-chibi-removebg-preview.png width="200">
 
 ![](https://komarev.com/ghpvc/?username=liminal-sea)
 
@@ -6,7 +6,7 @@
 
 
 mephistopheles / meat 
- pansexual genderfluid  19   
+pansexual genderfluid  19   
 
 
 
